@@ -1,4 +1,4 @@
-Klikoni mbi ID e personir per te pare grafikun
+**KLIKONI MBI ID E PERSONIT PER TE PARE GRAFIKUN**
 
 
 
